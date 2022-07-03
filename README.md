@@ -4,7 +4,7 @@
 
 所以，请继续，看看我们的接码平台列表。你会有很多收获。
 
-## 十大最佳接码平台
+# 十大最佳接码平台
 
 ### [**1.sms-activate.org**](https://sms-money.com/wp-login.php?action=register)
 
