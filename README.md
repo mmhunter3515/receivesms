@@ -6,6 +6,12 @@
 
 所以，请继续，看看我们的接码平台列表。你会有很多收获。
 
+提一嘴，如果你的接码的目标是想注册国外的社交平台的话一般接码平台的号都是不太靠谱的临时用可以长久用还是找专门的号商比较好一些。以下是一些个人使用过的靠谱号商：
+
+twitter号商：[incometwitter.com](https://incometwitter.com/)
+telegram号商: [telegram channel](https://telegramchannel.net/)
+谷歌账号号商: [gugeobserve.com](https://gugeobserve.com/)
+
 ### [**1.sms-activate.org**](https://bit.ly/3lIvKu7)(注意此网站是毛子网站,最好使用chrome浏览器右键翻译成中文或点击右上角的中国国旗图标转成中文再使用)
 目前通过本文链接注册首次充值时将获得 10% 的现金返还。[请进入sms-activate](https://bit.ly/3lIvKu7)
 
