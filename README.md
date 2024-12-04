@@ -8,7 +8,7 @@
 
 提一嘴，如果你的接码的目标是想注册国外的社交平台的话一般接码平台的号都是不太靠谱的临时用可以长久用还是找专门的号商比较好一些。以下是一些个人使用过的靠谱号商：
 
-twitter号商：[incometwitter.com](https://incometwitter.com/)
+## twitter号商：[incometwitter.com](https://incometwitter.com/)
 telegram号商: [telegram channel](https://telegramchannel.net/)
 谷歌账号号商: [gugeobserve.com](https://gugeobserve.com/)
 
